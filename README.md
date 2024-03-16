@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/e414e46a6e29efc7462c9d10f422a03b/045a8834c15ad633-be/s250x400/832c0a5cabde364b13324f9db4a3ac7f580d0ba6.gif" align="right">
+<img src="https://64.media.tumblr.com/c08598e62c0f92c837e745c5c5b0b361/305fb5822fae12ca-b5/s400x600/e7dc874b8c3b4c713540ad6bdb9448cc7f19d454.gifv" align="right">
 
 ・┆✦ʚ♡ɞ✦ ┆・
 
