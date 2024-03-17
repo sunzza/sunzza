@@ -15,7 +15,7 @@
 
 𓆩♡𓆪 mais informações:
 
-https://www.notion.so/sunzza-09996bc7403d4b918e28e17d5fcb1203
+https://chocolate-ghost-e22.notion.site/sunzza-7d80a0ebdeae49caa3a15347fd2b7f29
 
 -ˏˋ⋆ obrigado por ler ⋆ˊˎ-
  
