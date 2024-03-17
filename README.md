@@ -2,7 +2,7 @@
 
 ・┆✦ʚ♡ɞ✦ ┆・
 
-💬 Aprendendo: <strong>Programação</strong>
+💬 <strong>Programação</strong>: Python
 
 17 anos, 2006. qualquer pronome
 
