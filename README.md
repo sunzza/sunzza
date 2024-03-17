@@ -3,8 +3,9 @@
 
 💬 <strong>Programação</strong>: Python
 
+</p>
 
- 2006. qualquer pronome
+   2006. qualquer pronome
 
 
 </p> “Life depends on change, and renewal.”
